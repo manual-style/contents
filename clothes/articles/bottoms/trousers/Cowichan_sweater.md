@@ -1,0 +1,1 @@
+1.  REDIRECT [Cowichan knitting](Cowichan_knitting "wikilink")

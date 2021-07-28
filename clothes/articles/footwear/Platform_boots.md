@@ -1,0 +1,1 @@
+1.  REDIRECT [Platform shoe](Platform_shoe "wikilink")

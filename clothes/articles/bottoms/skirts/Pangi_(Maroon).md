@@ -1,0 +1,46 @@
+![](Tropenmuseum_Royal_Tropical_Institute_Objectnumber_10019375_Portret_van_een_Marron_vrouw_voor_haa.jpg "fig:Tropenmuseum_Royal_Tropical_Institute_Objectnumber_10019375_Portret_van_een_Marron_vrouw_voor_haa.jpg")
+**Pangi** is the name used by the [Maroon
+people](Maroon_people "wikilink") of [Suriname](Suriname "wikilink") for
+a type of cloth, and also for a wrap that may be made from this cloth.
+
+Pangi cloth is a cotton fabric with multi-colored vertical and
+horizontal stripes, similar to West African [kente
+cloth](kente_cloth "wikilink"). It may be used by women for a wrap or a
+sling to carry a baby, by men for a breech cloth or shoulder cape and
+for other purposes such as making a hammock. In Suriname wrap skirts
+worn by women of all ethnic groups are called *Pangi* whether or not
+they are made of Pangi material.
+
+The Suriname Maroons are the descendants of people who were brought from
+Africa as slaves after the mid-1600s and who escaped to live in the
+forests of the interior, eventually obtaining the right of
+self-government from the colonial powers. Traditionally the Maroons made
+their own clothing, using cotton as the raw material, which they either
+grew themselves or stole from plantation cotton fields. They most likely
+spun threads in the same way as the
+[Amerindians](Amerindians "wikilink"), using a spindle at foot height,
+then wove the threads into cloth on a simple loom.
+
+A woman would traditionally wear a panga but no top, and this is still
+customary in some villages. However, in villages that are frequented by
+tourists the women now generally wear a top. Originally pangis were made
+of plain material, but use of embroidery and appliqué became more common
+in the 1990s. Today, pangi wraps and bowls made of calabashes are the
+two main products manufactured for tourists in Upper Suriname. The
+maroons have learned that colorful and ornate pangis are the most
+popular with tourists.
+
+## References
+
+## Sources
+
+-
+
+-
+
+-
+
+-
+
+[Category:Surinamese culture](Category:Surinamese_culture "wikilink")
+[Category:Skirts](Category:Skirts "wikilink")

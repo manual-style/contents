@@ -1,0 +1,1 @@
+1.  redirect [combat boot](combat_boot "wikilink")

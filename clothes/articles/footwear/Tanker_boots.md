@@ -1,0 +1,1 @@
+1.  redirect [Tanker boot](Tanker_boot "wikilink")

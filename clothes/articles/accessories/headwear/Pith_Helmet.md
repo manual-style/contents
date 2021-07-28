@@ -1,0 +1,1 @@
+1.  REDIRECT [pith helmet](pith_helmet "wikilink")

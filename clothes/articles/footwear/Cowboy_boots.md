@@ -1,0 +1,1 @@
+1.  REDIRECT [Cowboy boot](Cowboy_boot "wikilink")

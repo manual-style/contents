@@ -1,0 +1,1 @@
+1.  REDIRECT [Pakol](Pakol "wikilink")

@@ -1,0 +1,1 @@
+1.  REDIRECT [Sailor cap](Sailor_cap "wikilink")

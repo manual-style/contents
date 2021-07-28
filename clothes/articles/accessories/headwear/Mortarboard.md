@@ -1,0 +1,1 @@
+1.  REDIRECT [Square academic cap](Square_academic_cap "wikilink")

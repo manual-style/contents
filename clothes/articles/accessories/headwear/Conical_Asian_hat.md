@@ -1,0 +1,1 @@
+1.  REDIRECT [Asian conical hat](Asian_conical_hat "wikilink")

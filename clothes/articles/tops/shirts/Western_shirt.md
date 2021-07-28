@@ -1,0 +1,1 @@
+1.  REDIRECT [Western wear#Shirt](Western_wear#Shirt "wikilink")

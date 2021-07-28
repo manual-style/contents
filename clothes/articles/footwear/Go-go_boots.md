@@ -1,0 +1,1 @@
+1.  REDIRECT [Go-go boot](Go-go_boot "wikilink")

@@ -1,0 +1,1 @@
+1.  REDIRECT [Hiking boot](Hiking_boot "wikilink")

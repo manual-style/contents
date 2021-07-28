@@ -1,0 +1,1 @@
+1.  REDIRECT [Taqiya](Taqiya "wikilink")

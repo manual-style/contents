@@ -1,0 +1,1 @@
+1.  REDIRECT [Phrygian cap](Phrygian_cap "wikilink")

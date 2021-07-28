@@ -1,0 +1,1 @@
+1.  REDIRECT [Dunce#Dunce cap](Dunce#Dunce_cap "wikilink")

@@ -1,0 +1,1 @@
+1.  REDIRECT [Wetsuit#Boots](Wetsuit#Boots "wikilink")
